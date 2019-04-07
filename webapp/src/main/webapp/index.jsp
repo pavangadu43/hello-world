@@ -1,2 +1,2 @@
-<h2> HARDWELL !! </h2>
+<h2> HARDWELL and PAONE </h2>
 
